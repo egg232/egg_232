@@ -1,2 +1,7 @@
-# egg_232-s-intro
-testing !!!! testing !!!
+# egg_232
+<details>
+  <summary>testing</summary>
+
+  testing !
+
+</details>
