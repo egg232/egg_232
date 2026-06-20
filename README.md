@@ -6,7 +6,7 @@ im egg_232 / ernie! im from england, i love writing and ice skating and cosplayi
 
 i collect lighters, dice, some radiation, some taxidermy, and i do a lot of war plane/tank models.. my favourite plane is the ju87/stuka
 
-im very laid back and always down to play, i give my steam/switch/roblox fairly freely so just ask !! doooont be scared to come talk me for literally no reason ^ ___ ^ hell come talk to me now i just might not respond bc my notifications are awful haha
+im very laid back and always down to play, i give my steam/switch/roblox pretty freely so just ask !! doooont be scared to come talk me for literally no reason ^ ___ ^ hell come talk to me now i just might not respond bc my notifications are awful haha
 
 mostly active on tiktok and ponytown but uhh theres some music on my strawpage if you wanna listen lol.. i love music rahhhg or you can send me something there or on my ata!
 
