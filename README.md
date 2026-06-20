@@ -10,7 +10,7 @@ im very laid back and always down to play, i give my steam/switch/roblox pretty 
 
 mostly active on tiktok and ponytown but uhh theres some music on my strawpage if you wanna listen lol.. i love music rahhhg or you can send me something there or on my ata!
 
-im 18 but plz keep anything lewd as a joke !! im lesbian (aroace, very ace lol... . .), howev masculine terms just sound nicer to me so you might hear me use sir to refer to myself despite being cis etc, but at the end of the day i really dont mind, whatever you think i am i am :]]
+im 18 but plz keep anything lewd as a joke !! im lesbian (aroace), howev masculine terms just sound nicer to me so you might hear me use sir to refer to myself despite being cis etc, but at the end of the day i really dont mind, whatever you think i am i am :]] (sometimes i can be a lot more sensitive about freaky jokes/comments etc than other times LMFAOO but im not mad at you i swurr)
 
 
 <details>
