@@ -21,7 +21,7 @@ im 18 but plz keep anything lewd as a joke !! im lesbian (aroace), howev masculi
 
 here are some games i own but that i want to get more into/play more bc ive just got out of exams so. .
 
-✮ | Wolfenstein(gotta finish new order rr) | Bendy(ive only played the original+some batds but i have them all..) | POSTAL(i have 1+redux) | Hotline Miami | Subnautica | Payday 2(its been SO long..) | Yazuka (i have 5) | Touhou(10/MoF) | Stardew | Meadow (i cant finish it bc noone plays it anymore ahhgg) | Stephen King + Hannibal | ✮
+✮ | Wolfenstein(gotta finish new order rr) | Bendy(ive only played the original+some batds but i have them all..) | POSTAL(i have 1+redux) | Hotline Miami | Subnautica | Payday 2(its been SO long..) | Yakuza (i have 5) | Touhou(10/MoF) | Stardew | Meadow (i cant finish it bc noone plays it anymore ahhgg) | Stephen King + Hannibal | ✮
 
 these are some that im not AS into as the ones above, but ill put them up here anyway bc theyre still likes, ive played/can still talk about them etc ^^
 
