@@ -15,7 +15,8 @@ im 18 but plz keep anything lewd as a joke !! im lesbian (aroace), howev masculi
 
 <details>
   <summary>⭔ my long list of interests .. ⭔ <---(click me!)</summary>
-
+-
+    -
 ✮ | TF2+EMESIS BLUE | Splatoon (2+3)| Risk of Rain 2 (PLEASE know this bc its NOT niche) | DBH | DBD | CODz tho tbh only dark aether storyline (primis/ultimis) | Deadlock | Papers, Please | Inglorious Basterds | DDLC(yuris my fav!) | Resident Evil | Terraria | Higurashi | Gatsby (yes, the great gatsby.) | Slay the Spire | SAW | FNAF | Kirby | Bloons TD6 | Phasmophobia | Cuphead | Tattletail | 5D chess (kms)| Laceygames | Lethal Company+REPO | FTL/Faster Than Light | Vocaloid (bring gumi backkk) | ENA | TWF | Minecraft | The Thing | Blackadder | ✮
 
 here are some games i own but that i want to get more into/play more bc ive just got out of exams so. .
