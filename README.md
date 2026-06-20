@@ -17,15 +17,15 @@ im 18 but plz keep anything lewd as a joke !! im lesbian (aroace), howev masculi
   <summary>⭔ my long list of interests .. ⭔ <---(click me!)</summary>
 -
     -
-✮ | TF2 + EMESIS BLUE | Splatoon (2+3)| Risk of Rain 2 (PLEASE know this bc its NOT niche) | DBH | DBD | CODz tho tbh only dark aether storyline (primis/ultimis) | Deadlock | Papers, Please | Inglorious Basterds | DDLC(yuris my fav!) | Resident Evil | Terraria | Higurashi | Gatsby (yes, the great gatsby. i LOVE him) | Slay the Spire | SAW | FNAF | Kirby | Bloons TD6 | Phasmophobia | Cuphead | Tattletail | 5D chess (kms) | IHNMAIMS | Laceygames | Lethal Company+REPO | FTL/Faster Than Light | Vocaloid (bring gumi backkk) | ENA | Hunger games | TWF | Minecraft | The Thing | Blackadder | ✮
+✮ | TF2 + EMESIS BLUE | Splatoon (2+3)| Risk of Rain 2 (PLEASE know this bc its NOT niche) | DBH | DBD | CODz tho tbh only dark aether storyline (primis/ultimis) | Deadlock | Papers, Please | Inglorious Basterds | DDLC(yuris my fav!) | Resident Evil | Terraria | Higurashi | Gatsby (yes, the great gatsby. i LOVE him) | Slay the Spire | SAW | FNAF | Kirby | Bloons TD6 | Phasmophobia | Cuphead | Tattletail | 5D chess (kms) | IHNMAIMS | Laceygames | Lethal Company+REPO | FTL/Faster Than Light | Vocaloid (bring gumi backkk) | ENA | Hunger games | TWF | Minecraft | The Thing | Saiko no Sutoka | Blackadder | ✮
 
 here are some games i own but that i want to get more into/play more bc ive just got out of exams so. .
 
-✮ | Wolfenstein(gotta finish new order rr) | Bendy(ive only played the original+some batds but i have them all..) | POSTAL(i have 1+redux) | Hotline Miami | Subnautica | Payday 2(its been SO long..) | Yakuza (i have 5) | Touhou(10/MoF) | Stardew | Meadow (i cant finish it bc noone plays it anymore ahhgg) | Stephen King + Hannibal | ✮
+✮ | Wolfenstein(gotta finish new order rr) | Bendy(ive only played the original+some batds but i have them all..) | POSTAL(i have 1+redux) | Hotline Miami | War Thunder | Where Winds Meet | Subnautica | Payday 2(its been SO long..) | Yakuza (i have 5) | Half life | The Forest | Undertale/Deltarune | Touhou(10/MoF) | Stardew | Meadow (i cant finish it bc noone plays it anymore ahhgg) | Stephen King + Hannibal | ✮
 
 these are some that im not AS into as the ones above, but ill put them up here anyway bc theyre still likes, ive played/can still talk about them etc ^^
 
-✮ | I like analogue horror here and there like Dr Nowhere, Gemini home ent, Vita carnis, Mandela catalogue, i dont remember the others.. | Life is Strange | OneShot | F1 | CRK | Danganronpa(gundham is my fav) | Buckshot Roulette (idk much about it soz)| Mouthwashing | Pokemon | Overwatch | Fallout | ✮
+✮ | I like analogue horror here and there like Dr Nowhere, Gemini home ent, Vita carnis, Mandela catalogue, i dont remember the others.. | Life is Strange | Hollow knight (I prefer Ori and the blind forest, sorry...) | OneShot | F1 | CRK | Danganronpa(gundham is my fav) | Buckshot Roulette (idk much about it soz)| Mouthwashing | Pokemon | Overwatch | Fallout | ✮
 
 -etc etc !! this is just what comes to mind at the time of writing..
 
