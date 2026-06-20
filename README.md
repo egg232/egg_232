@@ -1,6 +1,6 @@
 # egg_232
 
-helloooo
+helloooo (currently in wip.. ? )
 
 im egg_232 / ernie! im from england, i love writing and ice skating and cosplaying and im going to do biomedical science..
 
@@ -17,11 +17,11 @@ im 18 but plz keep anything lewd as a joke !! im lesbian (aroace), howev masculi
   <summary>⭔ my long list of interests .. ⭔ <---(click me!)</summary>
 -
     -
-✮ | TF2+EMESIS BLUE | Splatoon (2+3)| Risk of Rain 2 (PLEASE know this bc its NOT niche) | DBH | DBD | CODz tho tbh only dark aether storyline (primis/ultimis) | Deadlock | Papers, Please | Inglorious Basterds | DDLC(yuris my fav!) | Resident Evil | Terraria | Higurashi | Gatsby (yes, the great gatsby.) | Slay the Spire | SAW | FNAF | Kirby | Bloons TD6 | Phasmophobia | Cuphead | Tattletail | 5D chess (kms)| Laceygames | Lethal Company+REPO | FTL/Faster Than Light | Vocaloid (bring gumi backkk) | ENA | TWF | Minecraft | The Thing | Blackadder | ✮
+✮ | TF2 + EMESIS BLUE | Splatoon (2+3)| Risk of Rain 2 (PLEASE know this bc its NOT niche) | DBH | DBD | CODz tho tbh only dark aether storyline (primis/ultimis) | Deadlock | Papers, Please | Inglorious Basterds | DDLC(yuris my fav!) | Resident Evil | Terraria | Higurashi | Gatsby (yes, the great gatsby. i LOVE him) | Slay the Spire | SAW | FNAF | Kirby | Bloons TD6 | Phasmophobia | Cuphead | Tattletail | 5D chess (kms) | IHNMAIMS | Laceygames | Lethal Company+REPO | FTL/Faster Than Light | Vocaloid (bring gumi backkk) | ENA | Hunger games | TWF | Minecraft | The Thing | Blackadder | ✮
 
 here are some games i own but that i want to get more into/play more bc ive just got out of exams so. .
 
-✮ | Wolfenstein(gotta finish new order rr) | Bendy(ive only played the original+some batds but i have them all..) | POSTAL(i have 1+redux) | Hotline Miami | Subnautica | Payday 2(its been SO long..) | Yazuka (i have 5) | Touhou(10/MoF) | Stardew | Meadow (i cant finish it bc noone plays it anymore ahhgg) | ✮
+✮ | Wolfenstein(gotta finish new order rr) | Bendy(ive only played the original+some batds but i have them all..) | POSTAL(i have 1+redux) | Hotline Miami | Subnautica | Payday 2(its been SO long..) | Yazuka (i have 5) | Touhou(10/MoF) | Stardew | Meadow (i cant finish it bc noone plays it anymore ahhgg) | Stephen King + Hannibal | ✮
 
 these are some that im not AS into as the ones above, but ill put them up here anyway bc theyre still likes, ive played/can still talk about them etc ^^
 
@@ -30,6 +30,7 @@ these are some that im not AS into as the ones above, but ill put them up here a
 -etc etc !! this is just what comes to mind at the time of writing..
 
 i read a lot of classic literature+ i love H.G Wells, as well as non-fiction like chemistry, psychology, particle/astrophysics, i also have a telescope so ask me for moon/ saturn pics! my fav planet is neptune :))
+my faourite scientists are slotin (the screwdriver guy!) and boltzmann bc hes legit einstein and newton type shit but NOONE KNOWS HIM AGHHH hes so underrated
 
 here are some things i DONT have/know anything abt and i want to get more into:
 
