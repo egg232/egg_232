@@ -4,13 +4,13 @@ helloooo (currently in wip.. ? )
 
 im egg_232 / ernie! im from england, i love writing and ice skating and cosplaying and im going to do biomedical science..
 
-i collect lighters, dice, some radiation, some taxidermy, and i do a lot of war plane/tank models.. my favourite plane is the ju87/stuka
+i collect lighters, dice, some radiation, some taxidermy, ofc other stuff, and i do a lot of war plane/tank models.. my favourite plane is the ju87/stuka
 
 im very laid back and always down to play, i give my steam/switch/roblox pretty freely so just ask !! doooont be scared to come talk me for literally no reason ^ ___ ^ hell come talk to me now i just might not respond bc my notifications are awful haha
 
 mostly active on tiktok and ponytown but uhh theres some music on my strawpage if you wanna listen lol.. i love music rahhhg or you can send me something there or on my ata!
 
-im 18 but plz keep anything lewd as a joke !! im lesbian (aroace), howev masculine terms just sound nicer to me so you might hear me use sir to refer to myself despite being cis etc, but at the end of the day i really dont mind, whatever you think i am i am :]] (sometimes i can be a lot more sensitive about freaky jokes/comments etc than other times LMFAOO but im not mad at you i swurr)
+im 18 but plz keep anything lewd as a joke !! i am butch which means i am a cis lesbian howev masculine terms just sound nicer to me, hence the name+ why you might hear me use sir to refer to myself etc ^^ but i really dont mind, and i go by any pronouns :]] (sometimes i can be a lot more sensitive about freaky jokes/comments etc than other times LMFAOO but im not mad at you i swurr)
 
 
 <details>
